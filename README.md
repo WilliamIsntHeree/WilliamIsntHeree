@@ -1,3 +1,3 @@
-Hello, I am William. I am a coding noob.
+Hello, I am William. 
 
-Discord: William.#0001
+Discord: William.#9307
